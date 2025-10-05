@@ -1,0 +1,1 @@
+przeczytaj mnie prosze 🥺👉👈
